@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 About Me<br>Hi, I'm Mandip Chaudhary!<br>I'm currently pursuing BSc.CSIT and have a keen interest in technology and innovation.<br><br>🎵 Fun Fact<br>I love listening to Tamil, Telugu, and Malayalam songs—music is my escape!<br><br>🤝 Community Involvement<br>SSC Member in CSIT Association of Nepal<br> Community Service Chair Rotract Club of Kathmandu Height<br>📫 Connect with Me<br>Feel free to connect and collaborate on exciting projects! 🚀
+👋 About Me<br>Hi, I'm Mandip Chaudhary!<br>I'm currently pursuing BSc.CSIT and have a keen interest in technology and innovation.<br><br>🎵 Fun Fact<br>I love listening to Tamil, Telugu, and Malayalam songs—music is my escape!<br><br>🤝 Community Involvement<br>SSC Member in CSIT Association of Nepal 2025-2026<br> Community Service Chair Rotract Club of Kathmandu Height2025/2026 Public Image Chair Rotract Club of Kathmandu Height<br>📫 Connect with Me<br>Feel free to connect and collaborate on exciting projects! 🚀
 
 
 ## 🌐 Socials:
